@@ -1,6 +1,6 @@
 # ∆ 
-# Architect
-Architect : Create a different World!
+## Architect
+Create a different World!
 
 
 ![Architect](http://searchfortheunknown.press/architect/images/math_nature.png)
