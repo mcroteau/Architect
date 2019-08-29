@@ -195,16 +195,7 @@ zzzzzzz
 ≈ Wake him
 
 
-The question is why so much pain? 
-
-
-
-
-
-
-
-
-
+Why so much pain? 
 
 
 
@@ -224,8 +215,6 @@ Playgrounds fabricated out of the best woods
 
 People of the past
 I love you
-Please help
-
 
 
 
@@ -277,99 +266,13 @@ If you are reading this, we are in reality.
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Mark Esper
-...
-General Mark Kelly
-General Jerry Harris
-
-
-Switzerland is great
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Switzerland is good
 
 
 
 
 Vanilla
 
-Dali
 Value is necessity
 Love
 
@@ -380,8 +283,6 @@ Paradise
 Your getting it, you got it, youre getting it, you got it, youre gettting it... you got it
 
 
-?
-
 
 
 
@@ -390,16 +291,6 @@ Your getting it, you got it, youre getting it, you got it, youre gettting it... 
 Something hidden?
 Now you want to physical?
 We understand, we need to get you a fucking woman MAN
-
-NOT CHINA, no one just a good song
-
-
-
-Bad:
-Microsoft
-GE
-Chevy, not GMC
-Motorolla
 
 
 Dodge
@@ -412,163 +303,18 @@ Google
 
 
 
-I love you :)
 
 
 
 
 
+Fact : 
 
+Saudi Arabia funded the "Big Bang Theory" sitcom in order to immasculate the United States
 
 
-How Harvard controls the population
 
-Now bare with me...
 
-Your computers are being watched
-Satellite imagery captures features
-
-
-
-
-
-
-
-
-Facts : 
-
-Saudi Arabia funded the "Big Bang Theory" sitcom in order to start a new population of men that are more feminine
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The secret
-
-
-
-
-They relaying
-
-
-
-Greetings Germany, could I have 30 seconds of your time?
-
-
-We may have people in the past becoming rich right now
-
-
-
-Satan doesn't exist
-
-
-
-Mash
-He Haw - good something
-
-
-Alternates : realities outside of ours
-
-If you are reading this, you are in reality
-
-
-The only reason why we do anything is to be loved
-
-
-How evil exists and is a test
-
-
-
-
-
-
-
-
-
-People suck, the United States is going to collapse
-They want me fat
-They want me lazy
-They want me a sloth
-
-
-Im a new version of people, an owned person
-
-
-I gave everything for everyone
-You think you've acted on behalf of the past
-Saudi Arabia, if you bail them out, youre not good people either
-
-
-
-I need 
-
-
-
-Childish men
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I believe there is something after this for a lot of people
-With varying degrees
-If you know and deal with the future, so everything you do matters
 
 
 
