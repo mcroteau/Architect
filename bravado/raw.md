@@ -192,7 +192,7 @@ how much until he passes out?
 ˙
 ˙
 zzzzzzz
-≈ Wake him
+Wake him
 
 
 Why so much pain? 
