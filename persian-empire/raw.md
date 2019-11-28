@@ -1,92 +1,107 @@
 
 
-How and why we should support strong borders and Israel!
+How the Gods are at crucial conflict!
 
-
+Hollywood is corrupted
+Startups are being contaminated
 
 
 Conflicts between the middle east and the rest of the World has been going on for centuries, it is only in the last 100 years attacks against the US have become more thoughtout, intelligent and covert.
 
-I believe the middle east to be fearful of Israel and the Jewish people or may be using them as bait.
-I believe they used Germany, Austria and others to create an anti-semetic belief system which caused both World Wars.
-I believe they are responsible for inciting conflict between the United States, Germany, Russia, Japan, and now China. 
+My team believes the middle east to be fearful of Israel and the Jewish people or may be using them as bait.
+My team believes they used Germany, Austria and others to create an anti-semetic belief system which caused both World Wars.
+My team believes they are responsible for inciting conflicts between the United States, Germany, Russia, Japan, and now China. 
 
-I believe this to be a continuation of the Persian Empire and even though there are borders much of the Middle East shares similar goals.
-
-
+My team believes this to be a continuation of the Persian Empire and even though there are borders much of the Middle East shares similar goals.
 
 
+List of countries that can be grouped together, some countries may be missing in this write up. We just wanted to get ideas out, and out fast. Time is ticking.
 
 
-If you are French, you are of Greek inspiration in its origination however same originator as Britain, Russia, Germany, Spain, Italy
-If you are British, you are of Greek inspiration - originator is the same as German & Russian
-If you are German, you are of Greek inspiration - originator is same as British & Russian
-If you are Russian, combination of Greek and Hebrew - originator is unique
-If you are India, and backing Saudi Arabia or the Middle East you are not good. Sorry.
-If you are Israel, you are Israeli, same origins as Britain, Russia, Germany, etc.
+Caucasian Group ~
 
-
-List of countries that can be grouped together:
-
+Russia
 Britain
 Ireland
-Russia
-Germany
+France
+Portugual
+Italy
+Spain
+Belgium
+Netherlands
 Iceland
 Poland
 Sweden
 Norway
-
-
-The reason I watch porn is because when I go into the shower to fuck myself like every guy does guys somewhere pull on my arm, talk through me saying "Nope, not here." And if I try thinking I can feel men on my jaw laughing.
-
-
-My beliefs and you're messing with them!
-
-1. Exercise once a day 4-6 days a week roughly 45mins
-2. Eat lean, small meals
-3. Treat yourself once a week to a bad day (eat what ever you want, eat out only once a week)
-4. Be frugal
-5. Pray nightly, giving thanks, praying for those you love and asking for sins
-6. Give thanks first thing in the morning with your own "Power Move"
-7. If you happen to take care of yourself, do it in the shower thinking about women you know and care about.
-10. Extortionists die in the end, and the after life is shit... "Frank and Beans"
-11. Liers that lie for self benefit the same... "Frank & ... Beans"
-12. Impersonators... I feel sorry for you. "Anchovies"
-14. Don't look but find the one, the one you Fuck every day without worrying about getting pregnant.
-15. Live alive, you're only given one life
-16. 90% Rule : 90% of the time dedicated to something productive, you'll be happier
-17. Create
-18. Always try to keep your cool, ask forgiveness when you don't
-19. Live on your own terms, no one elses
-20. Act on Jealousy and you lose, big time... "Frank and Beans"
-21. Pull ups are the most important exercise
+Estonia
+Austria
+Germany
+Ukraine
+Belarus
+... Eastern Europe
+Greece Turkey
+Israel
+Turkey
+Australia
+Brazil
+Argentina
+Venezuala
+Peru
+Bolivia
+Columbia
+Costa Rica
+Mexico
+Canada
+United States
 
 
 
-airline ticket
-another/final draft architect
-book cover
-finalize kdp
-workout
 
+Asian Group ~
 
-renew domains
-update Pelican blog
-advertise Pelican
-hand out business cards
-
-
-
-Limit the number of people from... 
-
-
-
-If you are German and making a threat youre an idiot. Did you not read what I wrote? 
+China
+Japan
+North Korea
+South Korea
+Tawain
+Phillippines
+Indonesia
+Vietname
+Thailand
+Malaysia
+Laos
 
 
 
-I believe there to be good in each group. However there may be a secret force behind each pushing to see their empire succeed even if it means by sabataging another.
+Indian Group ~
+
+India
+Bangladesh
+Myanmar
+
+
+Africa ~ The entire continent excluding Egypt.... hold on
+
+
+
+My group believes that each group represents an Architect, an overseer and Earth is like the game of Risk. "Let's see if we can spread our culture and become the Worlds super power". Its no longer in your face, it now is suttle. So suttle you wouldn't have ever guessed at first glance. Here is an example : 
+
+Hello in Turkish, and in Arabic
+
+
+Merhaba 
+Marhabaan
+
+
+What does this represent? At one point Turkey hosted the Greek city of Troy where Greek was the spoken language.
+
+
+Preserve our cultures
+Dont allow the Persian Empire to continue to spread!
+
+As United States group, allow freedom of religion!
+Exclude people from... India as they may be acting as an arm
+
 
 How the Persians are using sex, political pollution, language pollution and entertainment pollution to ruin the United States.
 
@@ -103,6 +118,8 @@ Mercari
 Carvana
 Trivago
 MarketingSherpa
+
+These words end in vowels
 
 Our Brand Identities are becoming sloppy, not like the days of Nike, Rebok and Addidas.
 
@@ -140,6 +157,7 @@ Last Action Hero
 
 
 
+If you are Caucasian, any of the countries listed above we want and need Africa on our side. If you are Africa, it should have now dawned on you that there are people fighting to gain your support, primarily the Irish, British, and especially the French.
 
 
 
