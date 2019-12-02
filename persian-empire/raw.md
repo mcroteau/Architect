@@ -1,16 +1,13 @@
 
 
-How the Gods are at crucial conflict!
-
-Hollywood is corrupted
-Startups are being contaminated
+How winning Africa means the World!
 
 
 Conflicts between the middle east and the rest of the World has been going on for centuries, it is only in the last 100 years attacks against the US have become more thoughtout, intelligent and covert.
 
-My team believes the middle east to be fearful of Israel and the Jewish people or may be using them as bait.
-My team believes they used Germany, Austria and others to create an anti-semetic belief system which caused both World Wars.
-My team believes they are responsible for inciting conflicts between the United States, Germany, Russia, Japan, and now China. 
+The group I work for believes the middle east to be fearful of Israel and the Jewish people or may be using them as bait.
+We believe they used Germany, Austria and others to create an anti-semetic belief system which caused both World Wars.
+We believe they are responsible for inciting conflicts between the United States, Germany, Russia, Japan, and now China. 
 
 My team believes this to be a continuation of the Persian Empire and even though there are borders much of the Middle East shares similar goals.
 
@@ -114,10 +111,12 @@ Language pollution :
 
 I believe the Saudis allied with the Germans have been using people from India. 
 
+Azure
 Mercari
 Carvana
 Trivago
 MarketingSherpa
+Algorithmia
 
 These words end in vowels
 
