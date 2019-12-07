@@ -1,0 +1,92 @@
+<html>
+<head>
+	<title>Time is ticking </title>
+	
+	<meta name=”viewport” content=”width=device-width, initial-scale=1″>
+
+
+
+	<style type="text/css">
+		html,body{
+			margin:0px;
+			padding:0px;
+			text-align:center;
+		}
+		*{
+
+		}
+		#content{
+			width:760px;
+			font-size:21px;
+			text-align: center;
+			margin:20px auto 400px;
+		}
+
+		p span{
+			background:#ffcc01;
+		}
+	</style>
+</head>
+<body>
+	
+	<div id="content">
+
+		<h1 style="font-size:172px;margin:0px;">Starvation</h1>
+
+		<p style="font-weight:normal; text-align:center"><span id="total" style="font-size:372px;">1</span> <br/>people have died of <br/>starvation since<br/> you've been on this page</p>
+
+		<h3>Time is against.</h3>
+
+		<p><span>17</span> per minute</p>
+		<p><span>25,000</span> a day</p>
+		<p><span>175,000</span> a week</p>
+		<p><span>9,125,000</span> a year</p>
+
+		<h3>Below are a couple organizations you can donate to if interested.</h3>
+
+		<p><a href="https://www.ariseafrica.org/">https://www.ariseafrica.org/</a></p>
+		<p><a href="https://www.nokidhungry.org/ways-you-can-help/how-donate-feed-hungry-kids">https://www.nokidhungry.org/ways-you-can-help/how-donate-feed-hungry-kids</a></p>
+
+		<div id="fb-root"></div>
+<script async defer crossorigin="anonymous" src="https://connect.facebook.net/en_US/sdk.js#xfbml=1&version=v5.0"></script>
+	
+		<div class="fb-like" data-href="https://www.facebook.com/Hunger-Awareness-108809410600430" data-width="" data-layout="standard" data-action="recommend" data-size="large" data-show-faces="false" data-share="true"></div>
+
+	</div>
+
+
+
+	<script type="text/javascript">
+	var total = 1
+	var totalDiv = document.getElementById("total")
+
+	console.log(totalDiv)
+
+	var interval = setInterval(calculateTotal, 3000)
+
+	function calculateTotal(){
+		total += 1
+		totalDiv.innerHTML = total
+		totalDiv.style.fontWeight = "bold"
+		setTimeout(function(){
+			totalDiv.style.fontWeight = "normal"
+		}, 300)
+
+		document.title = total + " people!"
+	}
+
+
+	</script>
+
+	<!-- Global site tag (gtag.js) - Google Analytics -->
+	<script async src="https://www.googletagmanager.com/gtag/js?id=UA-40862316-10"></script>
+	<script>
+ 	 	window.dataLayer = window.dataLayer || [];
+    	function gtag(){dataLayer.push(arguments);}
+      	gtag('js', new Date());
+		gtag('config', 'UA-40862316-10');
+	</script>
+
+
+</body>
+</html>
