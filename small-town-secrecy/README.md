@@ -1,4 +1,10 @@
-Right now there are people eating gold encrusted food sleeping in soundly in their beds without worry. Right now there are people that see the future with a certain degree of certainty. Right now there are people acting as inappropriately investing in companies forcing a successful return on investment. Right now there is a high class and a low class, right now there is a class in the know and a class reaching hoping to get a crumb. Right now things are unfair, and it's becoming more and more secretive. It's not good. It is not fair. 
+Right now there are people feasting on gold encrusted entrees sleeping in soundly and snugly in their beds with little worry. Right now there are people that literally see the future with a certain degree of certainty. Right now there are people acting inappropriately investing in companies forcing a successful return on investment. Right now there is a high class and a low class, right now there is a class in the know and a class not in the know. Right now things are unfair, and the situation is becoming more and more secretive. It's not good. It is not fair. It is not right, we are in danger zone.
+
+The situation for me, the same. I live in a small community where homosexuals and blacks are very segregated from the rest of their World. As a data analyst I was profiled and have been excluded from all of the reindeer games as well. Its not just exclusion but the people of the town of Fairbanks Alaska have gone as far as ruining my old house, displayed child pornography on major sites in order to trap and to get rid of me as an analyst. This is just one dimension of the problems that I face currently. The other dimension involves the mind in a holistic sense. Mind control, mind reading, thought instigation, motion instigation are a reality for me. Im at constant struggle in order to battle this. What do I mean by this. I mean that people are able to operate me. (I have yet to figure out the grand design behind this. The one and only decent hypothesis involves the future of the civilization, mind control may be on the horizon, "Mild" mind control already exists and we may be given a warning, me being the warning)
+
+Some will say that I am crazy, and in one aspect I am. I have been diagnosed with Bipolar disorder with Schizoeffective disorder. I have literally lost my mind 3 times during my life in order to wrap my head around everything.
+
+Ive been called a treasonous, a rapist, a pedophile, a nazi all in secret. People have seen me in the most private of situations, I have lost friends because of this. People wont leave the secret area where they can see through my eyes, they wont shut down what ever is attached to me. I am suffering. 
 
 When I was just a kid 9 years old, I learned about the horrible acts of Germany and it didn't register as anything important. When I met my Grand parents, who were both very German I was at conflict. I loved them! They were my favorite. My father's side was Irish and French. My Grandmother on my father's side was challenging to get to know. She was strict, opinioniated and not a lot of fun as a kid, but she was great! I learned to appreciate and love her more as I got older. I understood the reason why she was so strict. One side of my family German, the other side Irish... 
 
@@ -52,13 +58,68 @@ My girfriend rubs the back of my head one day while driving back from her Grand 
 I just need to note, its important. As I write this I am completely owned by people that have infiltrated Google or are running Microsoft. Let me expain the scenario, there are people some where secret called a Time Vacuum, they are able to make my life a living hell and they are currently doing so. I believe it is the knob on the back of my head that is allowing these people to do this. They try to on occasion get me to attack people.
 
 
+As a data analyst... 
+
+Years ago while working for a small "Open Source" software company I started taking notice in comments made during conversations like "you're going to be president some day", "you're going to end up in New Jersey", "be careful of what you say, the corporate big shots" or "washington boys" wont like it. I payed attention, I made a commitment to be secretive and observe while being as transparent and honest as possible. I continued to work, continued to live life as normal. My mother became terminally ill during these years and things slowly got worse. I needed flexibility so I continued to work remotely, in addition I started participating in logo contests where I while was fishing for help. Help is what I got, I was introduced a gentleman who was big into software like myself except represented the otherside of the software World than what I was used to... proprietary World. He seemed to take an interest in my life. I was grateful but was playing an angle that was not healthy. I got a top secret clearance and began working for as a contractor for a government agency as a software engineer. Nothing too in the know. As soon as I stared working for the government agency I began to notice people doing weird things to get my attention outside of work. I then realized I was being used as mole. To protect people, I went AWOL and began pretending to be against the Government. 
+
+It was around this time that Edward Snowden became mainstream and the German's built a statue of a third whistleblower to be announced. I went AWOL, went anti government, pretended to be against everyone and everything excluding my father. I first flew to London where I had to get out of the 5 eyes and caught a train to France where I met FBI agents and signed a non-disclosure agreement. I moved back to Alaska and went quiet knowing that there were people watching and listening to what I was saying and doing. I fled the US, flew to the Philippines on a whim pretending to be like Snowden. I threw away my cell phone, bought a flight to Seattle first, then LA, then off to the Philippines. I started picking up signs, I cannot go into detail but I became a data analyst using people, sounds, and places as signals to take action, to move to deviate from what I was going to do normally. I didn't know for sure who was on the hook, and didn't realize  how big it was , until I started noticing the following typing mistakes everywhere. It originated with a conversation with someone I knew, others watching picked up on it and since the internet primarily facebook and stack overflow has been hit hard with these misformatted responses. The new one is this...
+. 
+. 
+. 
+People have picked up this too. 
+.
+.
+. 
+Thank you fb, even though I have been against Harvard's pipeline, you have been awesome if can read this which I am 92% sure you can. About 100% actually. Thank you.
+
+
+I did this secret signal work for about a year when I was finally introduced something new. I was laying in bed and I heard a ringing in my ears, the ringing made a rotating sound. I began to question if the ringing was real. If it meant something. So I started asking questions like make the ringing sound stop if you would like me to go somewhere. 
+
+I made a mistake by listening to the ringing, I didn't realize it at the time I was so caught up in the World of being top secret and leading potentially unnice people that I didn't question too much. Just accepted as a something new, a new way to communicate. 
+
+I was "zapped" for about a half hour. 
+
+I traveled all over, tried rescuing my ex from someone as I started communicating 3 Navy Seals, whom I called Orions Belt. Thats me
+
+The Seals left, and I was hadned off to people in Fairbanks. The first person I saw was Pat Rhodes, but the person left in charge... Terry Aldridge. They started bring in people by the dozens and they wouldn't leave. I was good. But knew it was bad news. It then changed from quiet conversations to people being hurt. My girlfriend was assaulted her name was Holly. She was drugged. It kept getting worse and worse. I went from this quiet person who couldnt say the word shit without feeling bad to a wreck. If you only knew you wouldn't want anything to do with this ....
+
+2 times on top of me. About a 1000 times around me. They targeted every girl I knew from elementary school as far back as Kindergarten. Andre Marshall rubbed his private area on my niece. 
+
+Ok my aggression towards anyone has to do with this goofballs
+
+
+
+If you're after over privileged people, here is the honest list of the most beautiful and popular in Fairbanks as I was growing up.
+
+Max Roberts
+Marshall Sele
+Mike Richards
+Matt Lewis
+Bobby Wilken
+Brent Renfrew
+Bobby Knapp
+
+
+
+Forgive me if for this post but I am without answers. I have something on me where people can see what I do and see 24/7 and they wont leave. These people are in Washington, Oregon, Idaho and Montana or somewhere else entirely... maybe off outside the United States like the UAE. If anyone knows anything about this, please message me. It is secret secret. People that don't have Facebook accounts should be in question like a I believe I have been profiled as a homosexual and I love black people, a bad combination. Years 1982 - now. Yellow and blue. 
+
+
+
+
+
+
+
+
+
+
+
+
 I scared all the white people out of power by trying to remove them. Soon all the owned the apparatus were African Americans. They want equality. 
 
 I want my old house to be restored, is that ok? Someone may have created this future. That is how you have to think about it. 
 
 
 
-I date a Hispanic, friends with African Americans
 
 
 
