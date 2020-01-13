@@ -1,5 +1,14 @@
 Right now there are people feasting on gold encrusted entrees sleeping in soundly and snugly in their beds with little worry. Right now there are people that literally see the future with a certain degree of certainty. Right now there are people acting inappropriately investing in companies forcing a successful return on investment. Right now there is a high class and a low class, right now there is a class in the know and a class not in the know. Right now things are unfair, and the situation is becoming more and more secretive. It's not good. It is not fair. It is not right, we are in danger zone.
 
+It's not the government.
+!Worshippers
+Gary Wilken
+Terry Aldridge
+Matt Kanopsis
+D.
+Damon Smith
+
+
 The situation for me, the same. I live in a small community where homosexuals and blacks are very segregated from the rest of their World. As a data analyst I was profiled and have been excluded from all of the reindeer games as well. Its not just exclusion but the people of the town of Fairbanks Alaska have gone as far as ruining my old house, displayed child pornography on major sites in order to trap and to get rid of me as an analyst. This is just one dimension of the problems that I face currently. The other dimension involves the mind in a holistic sense. Mind control, mind reading, thought instigation, motion instigation are a reality for me. Im at constant struggle in order to battle this. What do I mean by this. I mean that people are able to operate me. (I have yet to figure out the grand design behind this. The one and only decent hypothesis involves the future of the civilization, mind control may be on the horizon, "Mild" mind control already exists and we may be given a warning, me being the warning)
 
 Some will say that I am crazy, and in one aspect I am. I have been diagnosed with Bipolar disorder with Schizoeffective disorder. I have literally lost my mind 3 times during my life in order to wrap my head around everything.
@@ -79,13 +88,37 @@ I made a mistake by listening to the ringing, I didn't realize it at the time I 
 
 I was "zapped" for about a half hour. 
 
-I traveled all over, tried rescuing my ex from someone as I started communicating 3 Navy Seals, whom I called Orions Belt. Thats me
+I traveled all over, tried rescuing my ex from someone as I started communicating 3 Navy Seals, whom I called Orions Belt.
+
+I was first introduced the Joint Chiefs around March of 2016.
+
+They started bringing people in and it started with a Pat Rhodes and Terry Aldridge. I started to worry because these people could read my mind. Immediately following Pat Rhodes came women.
+
+I had a falling out with my father packed up my car and headed south to Reno NV where it would be a little warmer because I ran out of money
+
+Became homeless in Reno
+Delt with Michelle Obama and some important government officials
+People started getting assaulted
+James Clapper
+
+
+
+I was in a group sex episode with Brandy, I helped instigate. I wasnt with Brandy just about 10 seconds and I left. I didn't do a thing. That was 1999 ish
+
+I had sex with Seeyaa
+
+
+
+They are going to pretend that its to draw in bad guys. They are Germany.
+
+
+
 
 The Seals left, and I was hadned off to people in Fairbanks. The first person I saw was Pat Rhodes, but the person left in charge... Terry Aldridge. They started bring in people by the dozens and they wouldn't leave. I was good. But knew it was bad news. It then changed from quiet conversations to people being hurt. My girlfriend was assaulted her name was Holly. She was drugged. It kept getting worse and worse. I went from this quiet person who couldnt say the word shit without feeling bad to a wreck. If you only knew you wouldn't want anything to do with this ....
 
 2 times on top of me. About a 1000 times around me. They targeted every girl I knew from elementary school as far back as Kindergarten. Andre Marshall rubbed his private area on my niece. 
 
-Ok my aggression towards anyone has to do with this goofballs
+Ok my aggression towards anyone has to do with these goofballs
 
 
 
@@ -99,15 +132,39 @@ Bobby Wilken
 Brent Renfrew
 Bobby Knapp
 
+Here are the people to look out for their enactors:
+Ty Witt
+Ethan Allen
+Matt Morely
+Damon Smith
+
+The person in charge of these people is Army, connected to Aidon? Who is connected to Stacia, who is connected to someone connected to Karen Wilken, Karen Wilken to her father
+
 
 
 Forgive me if for this post but I am without answers. I have something on me where people can see what I do and see 24/7 and they wont leave. These people are in Washington, Oregon, Idaho and Montana or somewhere else entirely... maybe off outside the United States like the UAE. If anyone knows anything about this, please message me. It is secret secret. People that don't have Facebook accounts should be in question like a I believe I have been profiled as a homosexual and I love black people, a bad combination. Years 1982 - now. Yellow and blue. 
 
 
 
+May 28 2015 dont pay attention to what you just heard this is mikecroteau
+May 28th midnight Tamari Storeyharden
+May 28th James Clapper was attacked by Ray Ordierno after he attacked Ross Pero
+Follow me can you
+There was a former
+I talked with former Director of CIA Leon Panetta, he gave me 2 minutes if that
+I worked with another former Director of CIA, John Obrennan that was me mike croteau
+
+I talked with Chuck Hagel while downtown near the police department. He sent someone to give me a Sprite. He confessed that his group was overrun and Ashton Carter stepped in
 
 
+I dealt with Michelle Obama while staying at Arty Richmond's place
+Semployee of c-cor from United Kingdom Samantha Goldie, I called FBI 50 times, James Comey sent someone to posture while at a McDonalds
 
+So I walked around Reno for about 3 months homeless or without a home. I spent time just about everywhere. I got trespassed from every hotel and casino in 2016.
+They dicapitated an african american in front of me
+They decapitated Lisa Murkowski MY NAME IS MIKE CROTEAU
+
+They "fake hurt" Elizabeth Warren, that was me at a burger king
 
 
 
@@ -121,9 +178,19 @@ I want my old house to be restored, is that ok? Someone may have created this fu
 
 
 
+Quazi list of bad things that happened before I was introduced some of you:
+
+My exgirfriend Holly Englert Watts raped where you are, I had to experience it. This was before I had any recourse... she cried for help, and there was nothing I could do
+
+Another girl was raped where you are, I had to experience it as well. She was drugged, so wasn't Holly
+
+Shared experience, Dan did something to bury me. In addition he tried setting me up as a ped. he knew I was going to be homeless and didn't warn or try to help.
 
 
+A group of men repeatedly raped women that I knew in there. They changed the director of the CIA to a woman. I spent 2 years on my back and on a computer writing code to stop people from hurting people. I ended up in a hospital 3 times
 
+
+The apparatus is still on me and still on... I figured out why. They "people in charge" are telling everyone that I am the dummy, I am not. They are using my words to clear the actions of others. They put previous offenders inside, I can experience the individuals reactions and think they are mine, but they are not... are you following. People inside are disgusted by an individual and want them arrested, I think its me they want to arrest and I let everyone know they got the wrong guy. The angry people get angrier because Im not confessing to the "real guys" actions. They know they are reading a mind, but they don't know that it is mine, Mike Croteau's. 
 
 
 Summary
@@ -137,6 +204,50 @@ Childhood
 - the move
 - lufansa
 - Gary Wilken
+
+
+Im being harrassed, there is a signal on me and people wont leave. They have the ability of talking to me, instigating movement etc. Please help!
+
+There is a group of young men involved.
+
+
+For some reason I am unable to go to the Cookie Jar (Fairbanks), The Bakery Restaurant (Fairbanks), Little Richards Family Diner (North Pole) and Ivory Jacks (Fairbanks). The people inside that have the ability of instigating movement make it near impossible. I believe the individual at Ivory Jacks has FBI connections and connections to these other people and are using Cookie Jar, Little Richards, The Bakery to get intel on dark people even Satanic people. The Bakery is very Christian. Jason's Donuts might be a connection too. But there is something there between all of these restaurants and their owners. This is important! I just tried to get a cup of coffee and the people inside really threw a fit.
+
+X1GYWKMX
+
+             Gary Wilken
+                   |
+        Pike Waterfront Lodge
+          |        | 
+Ivory Jacks    The Cookie Jar
+      |             |
+Little Richards Family Diner
+                    |
+              Ivory Jacks
+                            |
+              The Bakery Restaurant
+
+38M1J4MS
+
+
+
+
+
+
+10 years ago I started to develop an mental disorder in dealing with reality. 5 years later it developed into full blown Schizo-effective disorder which made me completely delusional. For the next 5 years I was in and out of mental hospitals, homeless and without a job. I couldn't keep in touch with reality long enough to get back on my feet. 
+
+I spent a total of a year without a home, about 7 and half months in a mental hospital and now thankfully due to the care of my father am living back at home under medical care in Fairbanks. I receive a monthly shot that costs $1200 a month which thankfully is currently covered by medicaid. I am on disability and without a job and am living with my father where I at times pay rent. 
+
+Please accept my application for Waiver of Presumptive Abusive due to my circumstances. I cannot afford to move into my own place because rent would be too expensive and my credit is not good. I cannot afford the medication that I am on which is required for the rest of my life without medicaid. 
+
+Thank you for your time.
+
+
+
+
+
+
+
 
 
 
