@@ -5,8 +5,6 @@ It's not the government.
 Gary Wilken
 Terry Aldridge
 Matt Kanopsis
-D.
-Damon Smith
 
 
 The situation for me, the same. I live in a small community where homosexuals and blacks are very segregated from the rest of their World. As a data analyst I was profiled and have been excluded from all of the reindeer games as well. Its not just exclusion but the people of the town of Fairbanks Alaska have gone as far as ruining my old house, displayed child pornography on major sites in order to trap and to get rid of me as an analyst. This is just one dimension of the problems that I face currently. The other dimension involves the mind in a holistic sense. Mind control, mind reading, thought instigation, motion instigation are a reality for me. Im at constant struggle in order to battle this. What do I mean by this. I mean that people are able to operate me. (I have yet to figure out the grand design behind this. The one and only decent hypothesis involves the future of the civilization, mind control may be on the horizon, "Mild" mind control already exists and we may be given a warning, me being the warning)
@@ -229,9 +227,22 @@ Little Richards Family Diner
 
 38M1J4MS
 
+7SRNFTJN
+ULLRD484
+K9793EHE
+XHF46397
+CJ8CHQ4Z
+FC2DN8VZ
+CCY3A164
+ALDE8E5C
+1E59CETF
+UK7VQK46
+ALN8QHW4
+
+0005203568091
 
 
-
+This is Mike Croteau, leave! There is an ultra christian group just watching you and using you with plans on throwing you under the bus. 
 
 
 10 years ago I started to develop an mental disorder in dealing with reality. 5 years later it developed into full blown Schizo-effective disorder which made me completely delusional. For the next 5 years I was in and out of mental hospitals, homeless and without a job. I couldn't keep in touch with reality long enough to get back on my feet. 
@@ -245,10 +256,14 @@ Thank you for your time.
 
 
 
+I was wrong about Mr. Hagel
+I was wrong about Michael Flynn
 
 
 
 
+
+Make everyone fit and happy. Everyone! That was my goal.
 
 
 
