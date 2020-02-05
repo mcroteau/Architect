@@ -59,12 +59,12 @@ It h
 
 
 
-US people of India
+People of India
 
 Why?
-Too hard you now are trying
-forgetting where you came from
-forgetting why you are here
+Too hard you are trying
+forgetting where original
+forgetting why
 now youre mixed in
 now youre accepted
 now youre yale
@@ -88,59 +88,64 @@ Father may I?
 ...
 :)
 Why?
-Stupid, Jesus?!
-Stupid, Budhha?!
-Stupid, God?
-You don't want to be soft
-Powerful, What to do?
+Dont be stupid, Jesus!?
+Dont be stupid, Budhha!?
+Dont be stupid, God!?
+Sheeple not people son
+Soft?
+Powerful
+What to do?
 You control
 What about the people?
 Fuck the people
-Too stupid
 Its their own fault
 Father knows best
 I pledge
+.
+. 
+.
+Now what can I get away with
 
 
 
 
 
 
-Unspoiled
+The Unspoiled
 
 Now sit down
 Theres a secret
-Now why do we fight?
+Now why do we fight? ~ 
 Sir yes sir
 Thats right
-Now again, why do we fight?
+Now again, why do we fight? ~
 Sir yes sir
 Youre making me happy
 Theres a secret
 Now sit down
 Sir yes sir...
-I told you hes our next great leader
-You're going to lead the entire Nation
-Sir yes sir...
-There is a secret!
-There is no secret
-There is...
-listen 
-listen 
-listen 
-listen 
-listen
-No
-No
-No Im good... sir yes sir
+I told you our next great leader
+~
+Wait!!!
+Shut her up
+Now mrr mrr mrr mrr mrrrr
+Sir yes sir!
+NO! Wait!
+Shut him the fuck up!
+You want to be great?
+You want to be great?
+You want to be great?
+You want to be great?
+You want to be great?
 Sir yes sir
 Sir yes sir
-Sir yes sir....
-Don't listen
-I wont
-You're fighting on behalf of...
-Sir yes sir...
-Sir yes sir...
+Ω
+he did it 
+He did it, He did it, youre going to be great!
+wait
+MRR MRR MRRR MRRR MRRR!!!!!
+.............
+Shit
 
 
 
@@ -152,6 +157,7 @@ Time's a ticking
 Minimalism is our curse
 
 
+Birds Lament
 
 
 
@@ -167,15 +173,30 @@ Minimalism is our curse
 
 
 
-
-Scrap wood
-
+Scrap wood ∆˚
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
 knife
 scalple
-widdle
-widdle 
-widdle
-human 
+widdle widdle widdle
+widdle widdle widdle
+scaple
+hmmm
+tweak twiddle twait
+h u m a n ∆˚ 
 needle
 knife
 how much until he passes out?
@@ -192,12 +213,17 @@ how much until he passes out?
 ˙
 ˙
 zzzzzzz
+zzzz
+zz
+z
+lets have fun
 Wake him
+l i v e ∆˚
 
 
 Why so much pain? 
 
-
+Black Dog
 
 
 
