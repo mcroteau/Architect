@@ -4,6 +4,9 @@
 
 ### Evolution doesnt exist 
 
-The answer, no...  each race is originally designed, each design original with its own set of preferences 
-with the ultimate goal of creating a different World, a World that could not be created with one race. 
-God exists, he wants cohabitation, it is the ultimate test, so QUIT INTERFERING if you are.
+Evolution 
+does not exist!
+Each race was created. Each race was designed.
+There is a purpose! A grand purpose... 
+Each race created independently.
+Evolution does not exist.
