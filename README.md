@@ -1,11 +1,9 @@
-# ∆˚¬ 
-### Architect: Create a different World!
+# Architect
+
+![Architect](http://vocebonita.xyz/images/architect_fb_cover.png)
 
 
-![Architect](http://searchfortheunknown.press/architect/images/math_nature.png)
-
-
-### Lets talk, is evolution real? 
+### Evolution doesnt exist 
 
 The answer, no...  each race is originally designed, each design original with its own set of preferences 
 with the ultimate goal of creating a different World, a World that could not be created with one race. 
