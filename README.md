@@ -8,5 +8,4 @@ Evolution
 does not exist!
 Each race was created. Each race was designed.
 There is a purpose! A grand purpose... 
-Each race created independently.
 Evolution does not exist.
