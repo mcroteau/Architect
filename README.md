@@ -1,4 +1,3 @@
-# Architect : A Grand Design
 
 ![Architect](http://vocebonita.xyz/images/architect_fb_cover.png)
 
