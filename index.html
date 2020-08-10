@@ -53,7 +53,7 @@
 			display:block;
 			text-align: center;
 			padding:0px !important;
-			margin:0px 0px 3px 0px !important;
+			margin:30px 0px 3px 0px !important;
 		}
 		#cover{
 			width:64% !important;
@@ -191,6 +191,10 @@
 			font-family:Georgia;
 			font-style:normal;
 		}
+
+		#player{
+			margin-top:10px;
+		}
 	</style>
 </head>
 
@@ -209,7 +213,7 @@
 
 		<div class="col-md-7">
 
-			<audio controls loop autoplay>
+			<audio controls loop autoplay id="player">
 			   <!-- <source src="media/AllCatsAreGrey.mp3" type="audio/mpeg" /> -->
 			   <source src="media/Lovers.mp3" type="audio/mpeg" />
 			   <!-- <source src="media/OBebado.mp3" type="audio/mpeg" /> -->
@@ -221,7 +225,16 @@
 			<!-- <div class="fb-like" data-href="https://www.facebook.com/Architect-452118662278989" data-width="" data-layout="button_count" data-action="like" data-size="large" data-show-faces="true" data-share="true"></div> -->
 
 
-			
+			<div id="zeus-actions-wrapper" data-uri="www.vocebonita.xyz" style="position:absolute; top:40px; right:0px; line-height:1.0em !important">
+			    <div id="zeus-inner-wrapper">
+			        <a href="javascript:" id="launch-zeus"><img src="http://www.zeus.social/b/images/zeus-launcher.png"/></a>
+			        <span id="zeus-likes" style="font-weight:normal"><span id="likes-span"></span> likes</span>
+			        <span id="zeus-shares" style="top:20px !important; font-weight: normal;"><span id="shares-span"></span> shares</span>
+			        <span id="zeus" style="font-weight:normal;">Zeus</span>
+			    </div>
+			</div>
+			<script type="text/javascript" src="http://www.zeus.social/b/js/Resource.js"></script>
+
 
 			<h1 id="title">Architect</h1>
 
@@ -455,9 +468,8 @@
 			<img src="images/us_people_cropped.jpg" style="width:100%;"/>
 			
 
-
-			<div class="fb-like" data-href="https://www.facebook.com/Architect-452118662278989" data-width="" data-layout="button_count" data-action="like" data-size="large" data-show-faces="true" data-share="true" style="margin-top:42px"></div>
-
+<!--
+			<div class="fb-like" data-href="https://www.facebook.com/Architect-452118662278989" data-width="" data-layout="button_count" data-action="like" data-size="large" data-show-faces="true" data-share="true" style="margin-top:42px"></div> -->
 
 
 			<!--
@@ -477,6 +489,7 @@
 
 
 			<p class="center space-it">&copy; VoceBonita</p>
+
 
 		</div>
 
